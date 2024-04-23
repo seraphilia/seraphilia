@@ -7,6 +7,6 @@ for the love of my life STOP COPYING MY STRAWPAGE AND DESIGNS I SEE U GUYS . ^_^
 𝓒ommander *L*eo . he xe any 
 
 
-1[](https://files.catbox.moe/wkln6h.png)[https://retrospring.net/@Praise]etrospring
+![](https://files.catbox.moe/wkln6h.png)[https://retrospring.net/@Praise]etrospring
 
 
