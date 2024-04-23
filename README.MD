@@ -1,7 +1,7 @@
-girl i wanna take you to a gay bar! 
+for the love of my life STOP COPYING MY STRAWPAGE AND DESIGNS I SEE U GUYS . ^_^
 
-
-->![](https://files.catbox.moe/djvavv.png) <- 
-
+![](https://files.catbox.moe/djvavv.png) 
 
 𝓒ommander *L*eo 
+
+
