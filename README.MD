@@ -1,1 +1,1 @@
-die die die 
+-> LEO OR AYIN [https://pronouns.cc/@fighter](+) HE XE ANY PRONOUNS.<-
