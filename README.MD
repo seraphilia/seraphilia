@@ -1,1 +1,1 @@
--> LEO OR AYIN [https://pronouns.cc/@fighter](+) HE XE ANY PRONOUNS.<-
+-> LEO OR AYIN [+](https://pronouns.cc/@fighter) HE XE ANY PRONOUNS.<-
