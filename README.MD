@@ -1,4 +1,5 @@
 　　　![](https://files.catbox.moe/f90s6q.png) 　　　　　　　HEY GUNNER IN THE RAIN? WHAT KEEPS YOU UP AT NIGHT ~ 
+
 AGENT 【Leo】 or Ayin, he xe any with masculine prefference, TR / ENG. Learning RU. 　ೀ 
 ✧　　　　　　　　　　　　my mood fluxiates alot, however if i dont have any sort of awarness tag on my name it means i am fine to talk
 　　　　　　　　　　　　　to. However despite this i am *fine* to talk to under most circumstances. I only ask for respect to who i am
