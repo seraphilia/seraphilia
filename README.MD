@@ -1,4 +1,5 @@
-　　　![](https://files.catbox.moe/f90s6q.png) 　　　　　　　HEY GUNNER IN THE RAIN? WHAT KEEPS YOU UP AT NIGHT ~ 
+　　　　　　　　　　　　　　　　![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=perisicnikola37)
+　　　　![](https://files.catbox.moe/f90s6q.png) 　　　　　HEY GUNNER IN THE RAIN? WHAT KEEPS YOU UP AT NIGHT ~ 
 
 AGENT 【Leo】 or Ayin, he xe any with masculine prefference, TR / ENG. Learning RU. 　ೀ 
 
