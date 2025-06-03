@@ -1,3 +1,7 @@
+<div align="center">
+This text will be centered
+</div>
+
 ![](https://files.catbox.moe/o6fiqa.gif)
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=DEMISEOFEDEN)
