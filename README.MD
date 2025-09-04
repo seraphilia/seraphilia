@@ -1,5 +1,5 @@
 <div align="center">
 
-                 he xe any  <color>#7092be test</color>
+                 he xe any  $${\color{red}Red}$$
 
 
