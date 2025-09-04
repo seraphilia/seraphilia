@@ -2,11 +2,11 @@
 
 ![](https://files.catbox.moe/ugq8ee.gif)
 
-      **he** xe any   ✦  **int + c*h welcome** 
+      **he** xe any   ✦  **IAYOR** 
 
       i like **off**, **rblx** (decaying winter), **lisa rpg**  &  more
 
-      i am strictly **IAYOR** (interact at your own caution) as i am very unpredictable
+      i welcome **c+h** and **encourage** it, **feel free** to sit next to me 
 
             ![](https://files.catbox.moe/8rj6jy.png)![](https://files.catbox.moe/svad7u.png)![](https://files.catbox.moe/tqyg3i.png)
 
