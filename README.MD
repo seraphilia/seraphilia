@@ -2,9 +2,11 @@
 
 ![](https://files.catbox.moe/ugq8ee.gif)
 
-      **he** xe any   ✦  **interactions welcome** 
+      **he** xe any   ✦  **int + c*h welcome** 
 
       i like **off**, **rblx** (decaying winter), **lisa rpg**  &  more
+
+      i am strictly **IAYOR** (interact at your own caution) as i am very unpredictable
 
             ![](https://files.catbox.moe/8rj6jy.png)![](https://files.catbox.moe/svad7u.png)![](https://files.catbox.moe/tqyg3i.png)
 
