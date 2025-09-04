@@ -1,5 +1,5 @@
 <div align="center">
 
-                 he xe any  $${\color{light blue}light blue}$$
+                 he xe any  [some text](color: red)
 
 
