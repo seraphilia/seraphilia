@@ -1,4 +1,4 @@
-<div align="right">
+<div align="left">
 
 ![](https://files.catbox.moe/ugq8ee.gif)
 
