@@ -1,6 +1,6 @@
 <div align="left">
 
-      ![Profile view counter](https://komarev.com/ghpvc/?username=seraphilia&color=7ac0c4&label=PROFILE+VIEWS)
+      ![Profile view counter](https://komarev.com/ghpvc/?username=seraphilia&color=54a8c3&label=Is+that+so+?)
 
       **he** xe any   ✦  **IAYOR** 
 
