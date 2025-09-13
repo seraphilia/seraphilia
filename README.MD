@@ -1,6 +1,6 @@
 <div align="left">
 
-   
+   ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=seraphilia)
 
       **he** xe any   ✦  **IAYOR** 
 
