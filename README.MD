@@ -10,5 +10,7 @@
 
       im very shy and dont talk first, might seem a bit cold at first glance
 
+      alonetraveler, grocery gang & forsaken *iwc* 
+
             ![](https://files.catbox.moe/8rj6jy.png)![](https://files.catbox.moe/svad7u.png)![](https://files.catbox.moe/tqyg3i.png)
 
