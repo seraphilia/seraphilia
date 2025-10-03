@@ -20,6 +20,8 @@
 
        ![](https://files.catbox.moe/xm9c6h.png)    **♡**    ![](https://files.catbox.moe/0w4il1.png)
 
+im too lazy to continue this right now
+
 
 
 
