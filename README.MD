@@ -14,7 +14,7 @@
 
             ![](https://files.catbox.moe/t0ec3c.png)![](https://files.catbox.moe/gzdfmp.png)![](https://files.catbox.moe/kyvqw2.png)
 
-           ![](https://files.catbox.moe/xm9c6h.png)    ♡    ![](https://files.catbox.moe/0w4il1.png)
+       ![](https://files.catbox.moe/xm9c6h.png)    **♡**    ![](https://files.catbox.moe/0w4il1.png)
 
 
 
