@@ -12,7 +12,9 @@
 
       alonetraveler, grocery gang & forsaken **iwc** pls
 
-            ![](https://files.catbox.moe/8rj6jy.png)![](https://files.catbox.moe/svad7u.png)![](https://files.catbox.moe/tqyg3i.png)
+            ![](https://files.catbox.moe/t0ec3c.png)![](https://files.catbox.moe/gzdfmp.png)![](https://files.catbox.moe/kyvqw2.png)
+
+           ![](https://files.catbox.moe/i8fwmu.png)    ♡    ![](https://files.catbox.moe/74gg78.png)
 
 
 
