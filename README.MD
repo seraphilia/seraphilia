@@ -1,6 +1,6 @@
 <div align="middle">
 
-                  ![Profile view counter](https://komarev.com/ghpvc/?username=seraphilia&color=c47374&label=Is+that+so+?)
+**♡**       ![Profile view counter](https://komarev.com/ghpvc/?username=seraphilia&color=c47374&label=Is+that+so+?)
 
 ![](https://files.catbox.moe/fiae6a.png)
 
