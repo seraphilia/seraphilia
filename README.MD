@@ -6,7 +6,7 @@
 
 ![](https://files.catbox.moe/fiae6a.png)
 
-      **he** xe any   ✦  **IAYOR** 
+   **he** xe any   ✦  **IAYOR** 
 
       i like **off**, **rblx** (decaying winter), **lisa rpg**  &  more stuff
 
