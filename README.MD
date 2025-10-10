@@ -18,7 +18,7 @@
 
 **Leaving without you　,　　　can't say no.**
 
-# the lion does not bother himself with those who found out forsaken from roblox oomf exceptioh
+
 
 
   
