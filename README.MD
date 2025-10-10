@@ -1,6 +1,8 @@
-<div align="left">
+<div align="middle">
 
-                  ![Profile view counter](https://komarev.com/ghpvc/?username=seraphilia&color=54a8c3&label=Is+that+so+?)
+                  ![Profile view counter](https://komarev.com/ghpvc/?username=seraphilia&color=c47374&label=Is+that+so+?)
+
+![](https://files.catbox.moe/fiae6a.png)
 
       **he** xe any   ✦  **IAYOR** 
 
@@ -12,17 +14,7 @@
 
       alonetraveler, grocery gang & forsaken **iwc** pls
 
-
-            ![](https://files.catbox.moe/t0ec3c.png)![](https://files.catbox.moe/gzdfmp.png)![](https://files.catbox.moe/kyvqw2.png)
-
-***
+# the lion does not bother himself with those who found out forsaken from roblox oomf exceptioh
 
 
-       ![](https://files.catbox.moe/xm9c6h.png)    **♡**    ![](https://files.catbox.moe/0w4il1.png)
-
-im too lazy to continue this right now
-
-
-
-
-
+  
