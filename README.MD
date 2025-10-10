@@ -1,6 +1,6 @@
 <div align="middle">
 
-Don't say yes if you cant say no　　Victim of the system , say it isn't so.
+**Don't say yes if you cant say no　　Victim of the system , say it isn't so.**
 
 **♡**       ![Profile view counter](https://komarev.com/ghpvc/?username=seraphilia&color=c47374&label=Is+that+so+?)
 
@@ -16,7 +16,7 @@ Don't say yes if you cant say no　　Victim of the system , say it isn't so.
 
       alonetraveler, grocery gang & forsaken **iwc** pls i dont like u guys
 
-Leaving without you　,　　　can't say no.
+**Leaving without you　,　　　can't say no.**
 
 # the lion does not bother himself with those who found out forsaken from roblox oomf exceptioh
 
