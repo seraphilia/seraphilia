@@ -2,9 +2,9 @@
 
 **Don't say yes if you cant say no　　Victim of the system , say it isn't so.**
 
-**♡**       ![Profile view counter](https://komarev.com/ghpvc/?username=seraphilia&color=c47374&label=Is+that+so+?)
+**♡**         ![Profile view counter](https://komarev.com/ghpvc/?username=seraphilia&color=aeaeae&label=Is+that+so+?)
 
-![](https://files.catbox.moe/fiae6a.png)
+![](https://files.catbox.moe/87v56a.png)
 
 　**he** xe any   ✦  **IAYOR** unfiltered
 
@@ -24,6 +24,10 @@
      off fangame masterlist I LVOE OFF FANGAMES these are my personal favorites recommend me off fangames im **every elsens** number one fan btw. i love elsens.
 
 ![HOME](https://files.catbox.moe/h669l0.png) ![UNLOAD](https://files.catbox.moe/ggmsf2.png) ![SINCERE DECEIT](https://files.catbox.moe/fn6tiz.png) ![CONFINIUM](https://files.catbox.moe/rcb2mp.png) 
+
+***
+
+     ![](https://files.catbox.moe/lc39tf.png)
 
 
 
