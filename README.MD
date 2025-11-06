@@ -2,9 +2,9 @@
 
 **Don't say yes if you cant say no　　Victim of the system , say it isn't so.**
 
-**♡**         ![Profile view counter](https://komarev.com/ghpvc/?username=seraphilia&color=aeaeae&label=Is+that+so+?)
+**♡**                            ![Profile view counter](https://komarev.com/ghpvc/?username=seraphilia&color=aeaeae&label=Is+that+so+?)
 
-![](https://files.catbox.moe/s35yrl.png)
+![](https://files.catbox.moe/eewc1o.png)
 
 　**he** xe any   ✦  **IAYOR** unfiltered
 
