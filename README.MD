@@ -16,16 +16,18 @@
 
       alonetraveler, grocery gang & forsaken **iwc** pls i dont like u guys
 
+**Leaving without you　,　　　can't say no.**
+
+
 ***
 
-     off fangame masterlist** I LVOE OFF FANGAMES these are my personal favorites 
+     off fangame masterlist I LVOE OFF FANGAMES these are my personal favorites recommend me off fangames im **every elsens** number one fan btw. i love elsens.
 
 ![HOME](https://files.catbox.moe/h669l0.png) ![UNLOAD](https://files.catbox.moe/ggmsf2.png) ![SINCERE DECEIT](https://files.catbox.moe/fn6tiz.png) ![CONFINIUM](https://files.catbox.moe/rcb2mp.png) 
 
 
 
 
-**Leaving without you　,　　　can't say no.**
 
 
 
