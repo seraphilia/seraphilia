@@ -4,34 +4,13 @@
 
 **♡**                            ![Profile view counter](https://komarev.com/ghpvc/?username=seraphilia&color=aeaeae&label=Is+that+so+?)
 
-![](https://files.catbox.moe/eewc1o.png)
+BRUH I RUINED THISwhatever i dont care 
 
-　**he** xe any   ✦  **IAYOR** unfiltered
+# i like off fangames and roblox decaying winter thats all you have to know i alsoe really like elsens i know almost every elsen that is known to the world
 
-     i like **off**, **rblx** (decaying winter), **lisa rpg**  &  more stuff
+IWEC W/ ME IF YOU LIKE FORSAKEN, OKEGOM, OMORI OR ETC sorry ill just be super mean about it like aww your fucking interests suck
 
-     i welcome **c+h** and **encourage** it, **feel free** to sit next to me 
-
-     im very shy and dont talk first, might seem a bit cold at first glance
-
-      alonetraveler, grocery gang & forsaken **iwc** pls i dont like u guys
-
-**Leaving without you　,　　　can't say no.**
-
-
-***
-
-     off fangame masterlist I LVOE OFF FANGAMES these are my personal favorites recommend me off fangames im **every elsens** number one fan btw. i love elsens.
-
-![HOME](https://files.catbox.moe/h669l0.png) ![UNLOAD](https://files.catbox.moe/ggmsf2.png) ![SINCERE DECEIT](https://files.catbox.moe/fn6tiz.png) ![CONFINIUM](https://files.catbox.moe/rcb2mp.png) 
-
-***
-
-     ![](https://files.catbox.moe/lc39tf.png)
-
-
-# dont get near me if you found out project moon from forsaken i dont carrrrrrrr you guys lack actual media literacy
-
+i promise im nice and dont bite thoug
 
 
 
