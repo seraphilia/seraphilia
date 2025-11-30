@@ -6,11 +6,13 @@
 
 BRUH I RUINED THISwhatever i dont care 
 
-# i like off fangames and roblox decaying winter thats all you have to know i alsoe really like elsens i know almost every elsen that is known to the world
+i like off fangames and roblox decaying winter thats all you have to know i alsoe really like elsens i know almost every elsen that is known to the world
 
 IWEC W/ ME IF YOU LIKE FORSAKEN, OKEGOM, OMORI OR ETC sorry ill just be super mean about it like aww your fucking interests suck
 
-i promise im nice and dont bite thoug
+i promise im nice and dont bite thoug.... lala
+
+# also dni if u found pjmoon from forsaken or roblox. i dont usually get protective over interests but yall suck. get on my level of 6+ years of hyperfixating on project moon. fuck yall and yall limbus company or smth idk
 
 
 
