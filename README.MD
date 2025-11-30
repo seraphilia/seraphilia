@@ -12,7 +12,7 @@ IWEC W/ ME IF YOU LIKE FORSAKEN, OKEGOM, OMORI OR ETC sorry ill just be super me
 
 i promise im nice and dont bite thoug.... lala
 
-# also dni if u found pjmoon from forsaken or roblox. i dont usually get protective over interests but yall suck. get on my level of 6+ years of hyperfixating on project moon. fuck yall and yall limbus company or smth idk
+# also dni if u found pjmoon from forsaken or roblox. i dont usually get protective over interests but yall suck hawk PUTUH!
 
 
 
