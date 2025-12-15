@@ -9,7 +9,10 @@
 
 **interests**  ——  bold are ones i enjoy more, italics are ones that have lasted longer compared to others
 
-•‎ ‎     ***LISA RPG***, ***OFF* (FANGAMES)**, ***Roblox* (DECAYING WINTER, DEFEND THE TRAIN, TDS, PHIGHTING,** POINT OF NO RETURN), *Classic literature*, *Psychology*, *Project moon*, **RPGMAKERS in general**
+**•**‎ ‎     ***LISA RPG***, ***OFF* (FANGAMES)**, ***Roblox* (DECAYING WINTER, DEFEND THE TRAIN, TDS, PHIGHTING,** POINT OF NO RETURN), *Classic literature*, *Psychology*, *Project moon*, **RPGMAKERS in general**
+
+‎     please note. I heavily avoid interacting with those who like **forsaken** our found out project moon from **roblox media**, oomf / if i interact first excemption.
+
 
 
             ![](https://files.catbox.moe/8rj6jy.png)![](https://files.catbox.moe/svad7u.png)![](https://files.catbox.moe/tqyg3i.png)
