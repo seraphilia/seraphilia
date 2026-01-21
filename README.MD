@@ -2,7 +2,9 @@
  
 <div align="left">
 
-                         ![Profile view counter](https://komarev.com/ghpvc/?username=seraphilia&color=54a8c3&label=Is+that+so+?)
+![](https://files.catbox.moe/migmnr.png)
+
+                         ![Profile view counter](https://komarev.com/ghpvc/?username=seraphilia&color=d58a8c&label=Is+that+so+?)
 
 
       **he** xe any   ✦  **IAYOR** 
@@ -13,6 +15,3 @@
 
 ‎     please note. I heavily avoid interacting with those who like **forsaken** our found out project moon from **roblox media**, oomf / if i interact first excemption.
 
-
-
-            ![](https://files.catbox.moe/8rj6jy.png)![](https://files.catbox.moe/svad7u.png)![](https://files.catbox.moe/tqyg3i.png)
