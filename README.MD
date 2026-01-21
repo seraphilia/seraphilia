@@ -2,7 +2,7 @@
  
 <div align="left">
 
-                                     ![](https://files.catbox.moe/migmnr.png)
+                             ![](https://files.catbox.moe/migmnr.png)
 
                          ![Profile view counter](https://komarev.com/ghpvc/?username=seraphilia&color=d78889&label=Is+that+so+?)
 
