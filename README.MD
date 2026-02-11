@@ -15,4 +15,3 @@
 
 ‎     please note. I heavily avoid interacting with those who like **forsaken** our found out project moon from **roblox media**, oomf / if i interact first excemption.
 
-# DO NOT APPROACH ME IF YOU FOUND OUT ABOUT PROJECT MOON OR LIMBUS COMPANY FROM ROBLOX I WILL MAKE FUN OF YOU FOR IT IDGAF oomf exception
