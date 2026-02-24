@@ -1,10 +1,10 @@
 # Smoking buttnaked and just dropped the blunt on my balls. I scrum so fuckin loud
 
-test ignore dis  #+html:<details>
+test ignore dis  <details>
 #+html:<summary><b>A Hidden Section - Click Me!</b></summary>
 * Org Heading
   Some text.
-#+html:</details>
+</details>
                          
  
 <div align="left">
