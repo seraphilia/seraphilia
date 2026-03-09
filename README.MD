@@ -12,9 +12,8 @@
 
 <details>
 <summary><b>A Hidden Section - Click Me!</b></summary>
-* Org Heading
-  Some text.
-#+html:</details>
+some text ... hi
+</details>
 
 
 
