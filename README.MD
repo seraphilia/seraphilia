@@ -10,5 +10,11 @@
 
 ![](https://files.catbox.moe/yu3r03.png) testing stuff out... wait
 
+#+html:<details>
+#+html:<summary><b>A Hidden Section - Click Me!</b></summary>
+* Org Heading
+  Some text.
+#+html:</details>
+
 
 
