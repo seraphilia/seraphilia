@@ -11,7 +11,7 @@
 ![](https://files.catbox.moe/yu3r03.png) testing stuff out... wait
 
 <details>
-<summary><b>A Hidden Section - Click Me!</b></summary>
+<summary><b>✦ basic info</b></summary>
 some text ... hi
 </details>
 
